@@ -5,9 +5,14 @@
 </p>
 <div align="center">
 
+<p align="center">
+  <img src="https://files.catbox.moe/ttqxch.png" width="40%">
+</p>
+$\text{\color{#9838e8} Purple. ノ They¹.it² }$
 
-https://github.com/user-attachments/assets/b4b47609-3c7a-4408-9d58-685dd23842ca
-
+$\text{\color{#6c11b6} Bodily18 ⸝ Genderfluid  }$
+<br>
+<br>
 
 <details>
 <summary> </summary>
